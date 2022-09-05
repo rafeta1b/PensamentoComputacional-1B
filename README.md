@@ -13,3 +13,8 @@ Tem dias que eu acredito.***
 
 ![image](https://user-images.githubusercontent.com/109983742/188489490-b82ea276-c654-4acc-8dff-4674eccaf6c7.png)
 
+https://www.pensador.com/poemas_sobre_o_tempo/
+
+http://radiodafamilia.com.br/mensagens/18714/radio-online
+
+**@LiziBugalski**
